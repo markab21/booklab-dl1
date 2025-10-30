@@ -62,18 +62,209 @@ description: Maintains consistency for the leprechaun mythology, Irish estate se
   - **Glamour**: Can mask appearance/presence to humans, though less needed if not hiding true form
   - **Luck**: Subtle probability manipulation
 
-### The Irish Estate
-- **Location**: West Cork, Ireland
-- **Estate Name**: Gleann Scáth (Shadow Glen)
-- **Physical Description**:
-  - Ancient stone manor with modern renovations
-  - Hidden entrances to the leprechaun realm
-  - Gardens with magical properties
-  - [Specific rooms: library, ballroom, etc.]
-  - Surrounded by dark forests and ancient valleys
-  - Remote, isolated location - veil between worlds feels thin
+### The Irish Estate: Gleann Scáth (Shadow Glen)
+
+#### Location & Grounds
+- **Location**: West Cork, Ireland - remote coastal region
+- **Access**: Single winding road through dark forest; 20 minutes from nearest village
+- **Estate Size**: 500 acres of wild land
+- **Landscape**:
+  - Dark forests of oak, ash, and thorn
+  - Ancient stone circles in hidden clearings
+  - Rocky cliffs overlooking the Atlantic
+  - Misty valleys where fae realm bleeds through
+  - Wild gardens that seem to shift and grow overnight
+  - Stream with waterfall feeding into ancient pond
 - **Atmosphere**: Misty, mysterious, sensual, ancient magic humming beneath modern surface
 - **Weather**: Frequent mist and rain, dramatic sky changes, wild and untamed landscape
+- **The Veil**: Particularly thin here; easier to slip between worlds
+
+#### The Manor House
+
+**Exterior**:
+- Ancient gray stone, three stories
+- Ivy-covered walls, moss on northern side
+- Turrets and peaked roofs (Gothic Irish)
+- Modern glass conservatory attached to east wing
+- Stable block converted to garages (still smells of horses and hay)
+- Walled kitchen garden with herbs and vegetables
+
+**Ground Floor**:
+
+1. **The Entry Hall**
+   - Massive oak doors with iron Celtic knotwork
+   - Stone floor with worn patterns (magic sigils?)
+   - Grand staircase of dark wood, bannister carved with vines
+   - Portraits of ancestors line walls (their eyes seem to follow)
+   - Smells: Wood polish, old stone, rain from outside
+
+2. **The Library**
+   - Two stories with balcony accessed by spiral staircase
+   - Floor-to-ceiling bookshelves of dark wood
+   - Leather wingback chairs by massive stone fireplace
+   - Rolling ladder for high shelves
+   - Ancient tomes and modern books mixed together
+   - Hidden door behind bookshelf leads to vault entrance
+   - Smells: Old paper, leather, peat smoke, whiskey
+   - **Key Scene Location**: Intimate conversations, discovery moments
+
+3. **The Conservatory**
+   - Modern glass structure attached to manor
+   - Tropical plants mixed with Irish wildflowers
+   - Grows things that shouldn't survive this climate
+   - Stone floor with fountain in center
+   - Wrought iron furniture, cushioned benches
+   - Birds fly freely inside (magically attracted)
+   - Smells: Earth, flowers, humidity, green growth
+   - **Key Scene Location**: Morning meetings, peaceful interludes
+
+4. **The Dining Hall**
+   - Long table of polished oak (seats 20)
+   - Chandelier of iron and crystal (can be lowered by pulley)
+   - Tapestries depicting leprechaun history
+   - Sideboard laden with silver and crystal
+   - Windows overlook gardens
+   - **Key Scene Location**: Formal meals, political discussions
+
+5. **The Kitchen**
+   - Huge farmhouse style with modern appliances
+   - Aga stove always warm
+   - Hanging copper pots and cast iron skillets
+   - Large wooden table for informal meals
+   - Door leads to kitchen garden
+   - Smells: Baking bread, stew, herbs, coffee
+   - **Key Scene Location**: Intimate breakfast scenes, casual moments
+
+**Second Floor**:
+
+6. **Fergus's Chambers**
+   - Master bedroom in west wing
+   - Massive four-poster bed with heavy curtains
+   - Stone fireplace always burning
+   - Balcony overlooking forest
+   - Rough-hewn furniture, lived-in feeling
+   - Books and maps scattered about
+   - Clothes draped over chairs (organized chaos)
+   - Smells: Wood smoke, leather, earth, whiskey, HIM
+   - **Key Scene Location**: Intimate encounters, vulnerable conversations
+
+7. **Brigid's Guest Suite**
+   - East wing with morning light
+   - Elegant four-poster bed with Irish linen
+   - Writing desk by window
+   - Ensuite bathroom with claw-foot tub
+   - Wardrobe full of clothes (magically provided?)
+   - Fresh flowers appear daily
+   - Views of gardens and sea beyond
+   - Smells: Lavender, clean linen, sea air, flowers
+   - **Key Scene Location**: Her private moments, masturbation scenes, reflection
+
+8. **Conall's Suite** (when visiting)
+   - North wing, darker and more formal
+   - Modern luxury mixed with antique pieces
+   - Everything precisely placed
+   - Expensive suits hung perfectly
+   - View of front drive (watches comings and goings)
+   - Smells: Expensive cologne, leather, control
+
+9. **The Ballroom**
+   - Spans width of manor, second floor
+   - Parquet floors polished to shine
+   - Crystal chandeliers
+   - Mirrors on one wall (amplify light and magic)
+   - French doors to balcony overlooking grounds
+   - Used for court gatherings and ceremonies
+   - **Key Scene Location**: Formal events, dancing, revelations
+
+**Third Floor & Attics**:
+
+10. **The Tower Room**
+    - Highest point of manor
+    - Circular room with windows all around
+    - Used for stargazing, scrying, magic work
+    - Telescope, maps of stars and fae realm
+    - Ritual circle carved in floor
+    - Access to roof walk
+    - **Key Scene Location**: Magic lessons, private escapes
+
+**Basement & Underground**:
+
+11. **The Wine Cellar**
+    - Stone vaults beneath house
+    - Racks of wine and whiskey barrels
+    - Cool and damp
+    - One section leads to tunnel system
+
+12. **The Vault Entrance**
+    - Behind hidden door in library
+    - Stone corridor descending deep
+    - Lit by magical torches (never go out)
+    - Protected by wards and locks
+    - Requires Brigid's power to open
+    - **Key Scene Location**: Major plot revelation
+
+#### Outdoor Locations
+
+**The Gardens**:
+- **Rose Garden**: Wild roses, thorns, romantic but dangerous
+- **Hedge Maze**: Ancient yew trees, easy to get lost (shifts paths)
+- **Kitchen Garden**: Practical herbs and vegetables
+- **The Pond**: Still water, reflects sky, portal properties
+
+**The Forest**:
+- **The Sacred Grove**: Ancient oaks, stone circle, thin veil
+- **The Waterfall**: Hidden in forest, magical properties, privacy
+- **The Clearing**: Where Fergus and Brigid's field scene occurs (shifts to fae realm)
+
+**The Cliffs**:
+- Dramatic views of Atlantic
+- Dangerous in storms
+- Secret cove below (accessed by hidden path)
+- Selkies sometimes visit
+
+#### The Fae Realm (Overlaid Reality)
+
+**How It Appears**:
+- Same locations but MORE - colors richer, sounds clearer
+- Human world is muted version of fae reality
+- Magic visible as shimmer in air, light in plants
+- Creatures and beings invisible in human world now present
+
+**Key Fae Locations**:
+
+1. **The Great Hall** (fae version of manor)
+   - Grander, more ancient than human version
+   - Ceiling shows moving stars
+   - Walls carved with living vines
+   - Throne room for ruler
+   - Where court officially gathers
+
+2. **The Vault** (fully visible in fae realm)
+   - Crystal chamber deep underground
+   - Holds prophecy, binding spell, genealogy records
+   - Glows with ancient power
+   - Can only be opened by Brigid's magic
+
+3. **The Field** (where Fergus/Brigid scene happens)
+   - Rolling meadow of wildflowers
+   - Flowers respond to emotion (bloom, glow)
+   - Private pocket of fae realm
+   - Time moves differently (extended moments)
+   - Soft moss, perfect temperature, starlight even in day
+
+4. **The Council Chamber**
+   - Circular room with seven seats (one per house)
+   - Carved from single massive tree trunk
+   - Located in ancient part of estate grounds
+   - Only fully visible/accessible in fae realm
+   - Magical wards prevent violence inside
+
+5. **The Market Square** (fae village on grounds)
+   - Small fae folk live on estate lands
+   - Market stalls selling magical goods
+   - Music and celebration common
+   - They immediately love Brigid
+   - Not visible to humans without fae blood
 
 ### The Uncle (Boss Character)
 - **Name**: Conall (means "strong wolf" - predatory, commanding)
@@ -256,22 +447,281 @@ description: Maintains consistency for the leprechaun mythology, Irish estate se
   - Everything suddenly makes sense
 - **Full Access**: Once in the fae realm, she can see and interact with fae world fully
 
-### Magical Consequences
-- Breaking leprechaun law: [Consequences? - Your input]
-- Human-fae relationships: Rare but possible, particularly when fae blood is involved
-- The Marriage Bond: Creates a magical link, especially if fae heritage is awakened
-- The Succession Bond: Her power binding to Fergus will have realm-wide implications
+### Core Magic Mechanics
+
+#### How Leprechaun Magic Works
+
+**Source of Power**:
+- Magic flows from connection to the land and ancient fae bloodlines
+- Stronger when in Ireland/fae realm; weaker in modern cities
+- Tied to natural cycles (moon phases, seasons, solstices)
+- Amplified by emotional intensity and genuine connection
+- Hereditary but requires awakening and practice
+
+**Casting Methods**:
+- **Instinctive Magic**: Emotion-driven, spontaneous (Fergus's style)
+  - Most powerful when protecting/loving
+  - Hard to control under stress
+  - Examples: Weather shifts with anger, plants grow with joy
+- **Ritual Magic**: Deliberate, structured (Court style)
+  - Requires preparation, specific words/gestures
+  - More predictable and controlled
+  - Examples: Succession ceremonies, binding oaths
+- **Blood Magic**: Ancient, powerful, dangerous
+  - Requires sacrifice (literal blood or metaphorical)
+  - Creates lasting bonds/curses
+  - Used for major workings (vault sealing, realm binding)
+
+**Magical Costs & Limitations**:
+- **Physical Exhaustion**: Large workings drain stamina
+  - Minor magic: mild tiredness
+  - Major magic: collapse, unconsciousness, days of recovery
+  - Too much too fast: magical burnout (temporary loss of ability)
+- **Emotional Toll**: Using magic reveals true emotions
+  - Can't lie while actively casting
+  - Feelings become visible to other fae (aura changes)
+  - Prolonged use can overwhelm emotional control
+- **Connection Cost**: Magic requires being "present"
+  - Can't cast while distracted or divided attention
+  - Strongest when fully committed/genuine
+  - Manipulation weakens magical effect
+- **Natural Limits**:
+  - Can't create life or true death
+  - Can't force genuine love (only lust/attraction)
+  - Can't break blood oaths without severe consequences
+  - Can't change the past or see definite future
+
+#### Specific Ability Mechanics
+
+**Connection to Nature** (Fergus's primary strength):
+- **How it works**: Attune to natural elements, ask rather than command
+- **Range**: Touch to several hundred yards, stronger with direct contact
+- **Cost**: Minimal for small effects, exhausting for large-scale changes
+- **Examples**:
+  - Growing plants rapidly: Place hands on soil, channel life energy
+  - Influencing weather: Feel atmospheric patterns, gently shift them
+  - Animal communication: Open mind, project emotions/images
+  - Earth sensing: Detect disturbances through ground vibrations
+- **Limitations**: Can't force nature to act against its essence (can't make roses bloom in winter, but can protect them from frost)
+
+**Time Magic** (Subtle, advanced):
+- **How it works**: Bend perception of time within limited spaces
+- **Range**: Small area only (one room, one clearing)
+- **Cost**: Very draining; can't maintain for long
+- **Examples**:
+  - Extended moments: Make one minute feel like ten (intimate scenes)
+  - Accelerated healing: Speed up natural recovery within fae space
+  - Slowed arrows: Perception shift for combat advantage
+- **Limitations**:
+  - Can't actually travel through time
+  - Doesn't affect aging long-term
+  - Only works on those within the bounded space
+  - Requires immense concentration
+
+**Wealth/Gold Connection** (Conall's specialty):
+- **How it works**: Innate sense for value, precious materials, opportunities
+- **Passive Ability**: Always knows where wealth is, market trends
+- **Active Use**: Can influence probability of financial success
+- **Cost**: Minimal when passive; exhausting when actively manipulating markets
+- **Examples**:
+  - Finding gold: Sense precious metals underground
+  - Business success: Subtle luck shifts that compound
+  - Reading value: Know if something is worth more/less than appears
+- **Limitations**: Can't create wealth from nothing; works through existing systems
+
+**Glamour** (All leprechauns possess):
+- **How it works**: Project illusion over appearance/presence
+- **Types**:
+  - **Concealment**: Become less noticeable (not invisible, just overlooked)
+  - **Enhancement**: Amplify attractive qualities
+  - **Disguise**: Appear different (requires more power, less stable)
+- **Cost**: Minimal when subtle; draining when maintaining complex illusion
+- **Detection**: Other fae can see through; humans with fae blood may sense something "off"
+- **Limitations**: Doesn't change actual form, only perception; touch can break it
+
+**Luck Magic** (Core leprechaun ability):
+- **How it works**: Subtle probability manipulation
+- **Range**: Personal to small group nearby
+- **Cost**: Passive (no cost) for minor effects; draining for major interventions
+- **Examples**:
+  - Finding things: Keys, parking spots, opportunities appear
+  - Close calls: Narrowly avoid accidents, lucky escapes
+  - Good fortune: Coin flips, dice rolls, "coincidences" favor them
+- **Limitations**:
+  - Can't guarantee specific outcomes
+  - Stronger fae can override weaker luck
+  - Doesn't work against direct magical opposition
+  - Karma balance: Too much good luck creates backlash
+
+**Brigid's Unique Powers** (Elemental + Binding + Healing):
+- **Elemental Affinity**: Control over fire, water, air, earth
+  - Stronger than typical leprechaun nature magic
+  - Instinctive when emotional, needs training for control
+  - Can combine elements (steam, lightning, etc.)
+- **Binding Magic**: Create/break magical connections
+  - Can forge bonds between people, places, powers
+  - Can unbind curses and oaths (rare ability)
+  - Essential for succession ritual
+- **Healing**: Restore health, mend wounds, cure magical ailments
+  - Touch-based, requires focus
+  - Can't heal herself as easily
+  - Drains her significantly
+- **Why She's Special**: Combination is prophesied; her bloodline is royal fae
+
+### Magical Consequences & Laws
+
+#### Breaking Leprechaun Law
+
+**Types of Crimes**:
+1. **Oath Breaking**: Violating a magically sworn oath
+   - **Consequence**: Physical pain, loss of magic temporarily, visible mark
+   - **Severity**: Depends on oath's importance
+   - **Example**: Breaking betrothal oath causes burning sensation until amends made
+
+2. **Harming Royal Blood**: Attacking ruler or heir
+   - **Consequence**: Magical binding, imprisonment, exile
+   - **Severity**: Extreme - realm itself rejects the criminal
+   - **Example**: Conall's attack on Brigid triggers automatic magical backlash
+
+3. **Revealing Fae World**: Exposing magic to humans
+   - **Consequence**: Memory alteration, power suppression, exile
+   - **Severity**: Moderate to severe based on exposure scale
+   - **Example**: Showing magic to human crowd = exile; telling one trusted person = warning
+
+4. **Using Forbidden Magic**: Blood curses, forced bonds, life-stealing
+   - **Consequence**: Immediate power loss, corruption, madness
+   - **Severity**: Magic itself punishes this; realm sees user as corrupted
+   - **Example**: Attempting to steal another's life force causes own magic to consume caster
+
+**Enforcement**:
+- **The Court**: Council judges cases, determines punishment
+- **Magical Enforcement**: Some laws enforce themselves (oaths, royal protection)
+- **Exile**: Banishment from fae realm, cut off from magic source (living death for fae)
+- **Binding**: Magical imprisonment (Conall's fate)
+- **Redemption**: Possible through service, sacrifice, or magical cleansing
+
+#### Magical Bonds & Oaths
+
+**Types of Bonds**:
+- **Marriage Bond**: Links life forces, allows power sharing, creates intuitive connection
+  - Partners feel each other's emotions
+  - Can draw on each other's strength
+  - Breaking it requires both parties or causes severe pain
+
+- **Blood Oath**: Sworn with blood price; unbreakable without consequences
+  - Used for succession, alliances, serious promises
+  - Breaking causes magical backlash (illness, bad luck, loss of power)
+  - Can be released only by oath-maker or through completion
+
+- **Fealty Bond**: Loyalty oath to ruler
+  - Creates subtle connection to monarch
+  - Breaking it exiles from realm's magic
+  - Most fae swear this at succession ceremony
+
+**The Marriage Bond** (Central to plot):
+- Creates magical link between partners
+- With Brigid's fae heritage awakened, bond is especially powerful
+- Amplifies both partners' abilities
+- Makes them stronger together than separate
+- Required for succession legitimacy (ruler needs consort's power support)
+
+**The Succession Bond**:
+- Brigid's power binding to Fergus has realm-wide effects:
+  - Restores luck to the land
+  - Strengthens magical wards
+  - Legitimizes his claim beyond dispute
+  - Heals rifts in the realm caused by succession crisis
 
 ### Realm Politics & Court Structure
-- **The Court**: [Structure TBD - Council of elders? Noble houses?]
-- **The Factions**:
-  - **Conall's Supporters**: Old money, older fae who want to maintain current power structure and wealth
-  - **Fergus's Supporters**: Younger generation, those wanting reform and authentic connection to the old magic
-- **The Stakes**:
-  - Conall wins = old guard maintains control, wealth concentrated, realm stagnates
-  - Fergus wins = revitalization, genuine fae partnership (Brigid), connection to ancient magic restored
-- **Timeline**: Conall's return from NYC creates urgent timeline for succession decision
-- **How It's Decided**: Fae magic (the vault, prophecy, and Brigid's power) determines the true heir
+
+#### The Noble Council
+
+**Structure**:
+- **Seven Great Houses**: Each represents aspect of leprechaun life
+  1. **House Mór** (Great) - Traditional rulers; Fergus & Conall's house
+  2. **House Órga** (Golden) - Wealth, commerce, resources
+  3. **House Draíocht** (Magic) - Mystical arts, prophecy, vault-keeping
+  4. **House Talamh** (Earth) - Land management, agriculture, nature magic
+  5. **House Cogadh** (War) - Defense, justice, enforcement
+  6. **House Ealaín** (Art) - Culture, music, beauty, glamour
+  7. **House Gaois** (Wisdom) - History, law, education
+
+**Council Function**:
+- Meets at seasonal turning points (solstices, equinoxes)
+- Each house has one vote in major decisions
+- Succession requires 5 of 7 houses in agreement (supermajority)
+- Can override if fae magic clearly indicates true heir (prophecy, vault)
+
+**Council Powers**:
+- Approve/reject succession claims
+- Pass laws for realm governance
+- Settle disputes between houses
+- Manage relations with other fae courts
+- Guard ancient secrets (vault, prophecies)
+
+#### Political Factions in Detail
+
+**Conall's Coalition** (Old Guard):
+- **Core Support**: Houses Órga (Golden) and Gaois (Wisdom)
+- **Arguments**:
+  - Stability through established power
+  - Economic prosperity (his NYC connections)
+  - Experience and sophistication
+  - Traditional succession (older brother)
+- **Motivations**:
+  - Maintain current wealth distribution
+  - Resist change and reform
+  - Keep power concentrated in council
+  - Fear of unknown with Brigid (outsider)
+- **Methods**: Political pressure, economic incentives, appeals to tradition
+- **Weakness**: Conall's manipulation and amulet use bothers even some supporters
+
+**Fergus's Alliance** (Reformers):
+- **Core Support**: Houses Talamh (Earth) and Ealaín (Art)
+- **Arguments**:
+  - Authentic connection to land and old magic
+  - Renewal and revitalization
+  - Genuine care for realm over personal power
+  - Brigid's prophesied role (outsider bringing change)
+- **Motivations**:
+  - Return to ancient fae values
+  - Share power more broadly
+  - Strengthen realm through genuine bonds
+  - Embrace change and growth
+- **Methods**: Grassroots support, demonstration of magical connection, fulfilling prophecy
+- **Weakness**: Less political experience, seen as idealistic
+
+**Swing Houses** (Deciding Votes):
+- **House Mór** (Great): Technically Fergus & Conall's house; divided internally
+- **House Draíocht** (Magic): Waits for magical signs; prophecy-focused
+- **House Cogadh** (War): Values strength and decisive action; watches conflict
+
+**How They're Won**:
+- House Draíocht swings when Brigid opens vault (magical proof)
+- House Cogadh swings when Fergus defeats Conall (strength proven)
+- House Mór recognizes Fergus when he fulfills prophecy (rightful heir)
+
+#### Power Dynamics
+
+**Before Father's Death**:
+- Stable hierarchy with clear ruler
+- Council focused on governance, not succession
+- Fergus managed Ireland/estate
+- Conall built NYC empire
+
+**After Father's Death** (Crisis Point):
+- No clear heir designated
+- Council deadlocked on succession
+- Fergus holds Ireland; Conall holds wealth/influence
+- Realm's magic weakening without true ruler
+- External threats sense vulnerability
+
+**Succession Resolution**:
+- Brigid's arrival triggers prophecy fulfillment
+- Vault opening provides undeniable proof
+- Fergus & Brigid's genuine bond vs. Conall's manipulation
+- Magic itself chooses through their combined power
+- Council must acknowledge or fight realm's own magic
 
 ### Series Character - Fergus's Ex (Book 2 Setup)
 - **Name**: [TBD]
@@ -284,22 +734,258 @@ description: Maintains consistency for the leprechaun mythology, Irish estate se
   - Possibly manipulated by Conall himself (using his charm/amulet even from prison?)
 - **Role in Book 2**: Her actions have major consequences as Conall escapes/returns as antagonist
 
+## Cultural Traditions & Customs
+
+### Daily Life & Social Customs
+
+**Greetings**:
+- **Among Nobility**: Hand to heart, slight bow, formal titles
+- **Among Common Fae**: Casual touch (shoulder, arm), smile, informal
+- **To Outsiders**: Wariness, testing with riddles or playful tricks
+- **To Honored Guests**: Offer of bread and salt, hospitality oath
+
+**Hospitality Rules** (Sacred):
+- Once you accept hospitality, host must protect you
+- Breaking hospitality is gravest offense
+- Food and drink offered must be safe (magical oath)
+- Guest has obligations too: respect household, no theft, no harm
+
+**Names & Identity**:
+- True names hold power; often have public name and true name
+- Giving true name is act of trust/intimacy
+- Asking for true name is significant (lovers, close allies)
+- Fergus and Conall use their true names (sign of confidence/power)
+
+**Time Perception**:
+- Fae view time differently; centuries feel shorter
+- "Soon" might mean next week or next decade
+- Modern leprechauns adapted to human timescales (necessary for business)
+- Still say things like "haven't seen you in an age" meaning 50 years
+
+### Food & Drink
+
+**Traditional Fare**:
+- **Breakfast**: Porridge with honey, fresh bread, butter, eggs, strong tea
+- **Midday**: Hearty stews, root vegetables, meat pies, cheese
+- **Evening**: Roasted meats, potatoes, seasonal vegetables, whiskey
+- **Celebrations**: Honey cakes, spiced wine, roasted boar, berry tarts
+
+**Magical Properties**:
+- Fae food in fae realm binds you subtly to that place
+- Eating it makes you more able to see/stay in fae realm
+- Traditional protection: eat human food daily to stay grounded
+- Brigid eating fae food helps her awakening (she doesn't know at first)
+
+**Drinking Culture**:
+- Whiskey is ceremonial and social
+- Toasts are important: "Sláinte" (health), "To the old ways", etc.
+- Refusing drink can be insult unless good reason
+- Drinking together seals agreements, builds trust
+- Wine for formal occasions; whiskey for truth-telling
+
+**Significant Foods**:
+- **Honey**: Sacred, represents luck and prosperity
+- **Blackberries**: Associated with fae realm, never pick after Samhain
+- **Bread**: Offering bread = offering friendship
+- **Salt**: Protection, purification, sealing oaths
+
+### Celebrations & Holidays
+
+**Seasonal Festivals** (Quarter Days):
+- **Imbolc** (Feb 1): Festival of Brigid (goddess), fire and renewal
+  - Significant because protagonist shares name
+  - New beginnings, love magic strongest
+  - Possible timing for their wedding/bonding
+
+- **Bealtaine** (May 1): Fertility, passion, bonfires
+  - Veil between worlds thinnest
+  - Traditional time for handfasting (trial marriage)
+  - Wildest celebration, outdoor revelry
+
+- **Lughnasadh** (Aug 1): Harvest, games, contests
+  - Competitions of strength and skill
+  - Marriages often finalized at this time
+  - Abundance and gratitude
+
+- **Samhain** (Oct 31): Dead remembered, year ends
+  - Most dangerous time, spirits walk freely
+  - Succession often decided at Samhain
+  - Possible climax timing
+
+**Personal Celebrations**:
+- **Births**: Celebrated with gifts of silver, promises of protection
+- **Coming of Age**: Magical awakening ceremony (late teens)
+- **Marriages**: Elaborate rituals, binding ceremonies, public and private rites
+- **Deaths**: Celebrated not mourned, life honored, stories told
+
+**Court Celebrations**:
+- Balls every solstice and equinox
+- Elaborate dress, dancing, political maneuvering
+- Music is live (traditional instruments + fae magic)
+- Expected to attend if noble or high-ranking
+
+### Courtship & Marriage Traditions
+
+**Courtship**:
+- **Traditional**: Formal approach, family involvement, political considerations
+- **Modern**: More freedom but still follows patterns
+- **Gift-Giving**: Flowers (roses for passion), ribbons (binding), jewelry (wealth)
+- **Music**: Composing song for beloved is traditional
+- **Proof of Worth**: Must demonstrate ability to provide/protect
+
+**Engagement**:
+- Exchange of tokens (rings, amulets, personal items)
+- Public announcement at court gathering
+- Betrothal oath spoken before witnesses
+- Period of preparation (traditionally one season)
+
+**Marriage Ceremonies**:
+- **Public Rite**: Court ceremony, formal vows, political witnesses
+  - Held in Great Hall or sacred grove
+  - Officiated by head of House Draíocht (magic house)
+  - Exchange of vows, rings, binding ribbons
+  - Witnessed by all seven houses
+
+- **Private Rite**: Magical binding, intimate
+  - Only couple and officiant
+  - Blood mixed to create bond
+  - True names exchanged
+  - Consummation completes the magic
+
+- **Celebration**: Feast, dancing, music lasting til dawn
+  - Gifts given to couple
+  - Toasts and blessings
+  - Couple leads first dance
+
+**Marriage Customs**:
+- Bride wears flowers in hair (specific to her power/house)
+- Groom wears cloak of his house colors
+- Handfasting with ribbons during vows (literally bound together)
+- Jump over broom/fire together (crossing threshold)
+- First dance must be completed or bad luck
+- Wedding night is sacred (not to be disturbed)
+
+**Brigid & Fergus's Wedding** (Book Climax):
+- Will combine human and fae traditions
+- Her heritage revealed, so she's honored as fae royalty
+- Their binding will restore realm's luck
+- Prophecy fulfilled through their union
+- Celebration marks new era
+
+### Music & Entertainment
+
+**Traditional Music**:
+- Fiddle, tin whistle, bodhrán (drum), harp
+- Songs passed down through generations
+- Magic woven into melodies (can compel emotion)
+- Dancing is vigorous, sensual, communal
+
+**Fae Music** (Magical):
+- Can enchant listeners, make them dance til exhausted
+- Expresses emotion directly (feel what musician feels)
+- Some songs are spells in disguise
+- Dangerous to listen to certain fae music without protection
+
+**Entertainment**:
+- Storytelling (especially in winter)
+- Competitions: strength, skill, magic, wit
+- Hunting (stags, boars)
+- Gambling (cards, dice - luck magic makes it interesting)
+- Theater and performance (elaborate productions)
+
+### Fashion & Appearance
+
+**Noble Fae Fashion**:
+- **Men**: Tailored jackets, waistcoats, fine shirts, leather boots
+  - Modern suits for business (Conall)
+  - Rough practical clothes for land work (Fergus)
+  - Formal: Rich fabrics, house colors, silver or gold accents
+
+- **Women**: Flowing gowns, corseted bodices, rich fabrics
+  - Modern dresses for human world
+  - Traditional for fae court: long sleeves, intricate embroidery
+  - Hair: Long, elaborate styles with flowers, ribbons, jewels
+
+**Significance of Colors**:
+- **Green**: Nature, life, leprechaun power
+- **Gold**: Wealth, success, House Órga
+- **Red**: Passion, strength, Fergus's affinity
+- **Silver**: Moon, magic, House Draíocht
+- **Black**: Mystery, power, formal occasions
+- **White**: Purity, new beginnings, weddings
+
+**Jewelry & Adornment**:
+- **Rings**: Denote house, status, marriage
+- **Amulets**: Protection, power focus, Conall's manipulation tool
+- **Torcs**: Traditional neck rings for nobility
+- **Crowns**: Simple circlets for rulers, nothing ostentatious
+
+### Death & Mourning
+
+**Fae Attitudes Toward Death**:
+- Long-lived but not immortal
+- Death seen as transformation, not end
+- Celebrate life lived rather than mourn loss
+- Believe in continuation (reincarnation or otherworld)
+
+**Funeral Rites**:
+- Body prepared by family/close friends
+- Laid in state for three days (visitation)
+- Stories told of their life (honor their deeds)
+- Cremation or burial in sacred grove
+- Feast celebrating their life
+- Personal items distributed to loved ones
+
+**Fergus's Father's Death** (Backstory):
+- Sudden, mysterious (possibly magical)
+- Properly honored but created succession crisis
+- Some suspect foul play (political murder?)
+- His loss weakened realm's magic
+- Left unfinished business (succession undecided)
+
+### Taboos & Superstitions
+
+**Things Not Done**:
+- ❌ Break oath or promise (magically enforced)
+- ❌ Refuse offered hospitality without cause (insult)
+- ❌ Iron weapons in sacred spaces (blocks magic)
+- ❌ Harm children (gravest offense, exile)
+- ❌ Lie during truth-telling ceremony (magical consequences)
+- ❌ Force marriage bond (corrupts magic, dooms couple)
+
+**Protective Practices**:
+- ✅ Salt circles against malevolent fae
+- ✅ Iron horseshoe above door
+- ✅ Rowan branches for protection
+- ✅ Speaking blessings when entering fae spaces
+- ✅ Never thank fae directly (creates debt; say "I'm grateful")
+- ✅ Leave offerings at sacred sites (milk, honey, bread)
+
+**Lucky/Unlucky**:
+- **Lucky**: Finding four-leaf clover (rare for fae to find), right-hand path at crossroads, first star
+- **Unlucky**: Spilling salt (unless thrown over shoulder), breaking mirror (reflects magic badly), magpie alone (one for sorrow)
+
 ## Setting Details to Maintain Consistency
 
 ### New York Scenes
-- **Office**: [Describe the building, her desk, his office]
-- **Power Dynamic**: Intense, professional attraction with boundaries
-- **The Proposal Scene**: [Where does it happen? What's the specific offer?]
+- **Conall's Office**: Manhattan high-rise, glass and steel, minimalist luxury, floor-to-ceiling windows, modern art
+- **Brigid's Desk**: Outside Conall's office, organized chaos, personal touches, city view
+- **Power Dynamic**: Intense, professional attraction with boundaries, him always in control
+- **The Proposal Scene**: In his office, after hours, city lights backdrop, he's calculated and smooth
 
 ### Ireland Journey
-- **Flight/Travel**: First moment of intimacy/vulnerability?
-- **Arrival**: Weather, atmosphere, first impressions
-- **Estate Tour**: Strategic revelation of secrets
+- **Flight/Travel**: First-class, Conall arranges everything, she's out of her depth, first moment of vulnerability
+- **Arrival**: Evening, misty rain, dramatic landscape, sense of coming home (for her)
+- **Estate Tour**: Strategic revelation, Conall shows her "human" version, secrets gradually revealed
 
-### Leprechaun Realm
-- **Visual Aesthetic**: [Celtic? Ethereal? Dark fairy tale?]
-- **Sensory Details**: How does magic feel/smell/sound?
-- **Danger Level**: Beautiful but dangerous? Trickster elements?
+### Leprechaun Realm (Visual Aesthetic)
+- **Style**: Celtic meets Gothic Romance meets Dark Fairy Tale
+- **Colors**: Rich greens, deep golds, silver moonlight, shadow and mist
+- **Sensory Details**:
+  - **Magic Feels**: Tingling on skin, warmth in chest, pull toward power sources
+  - **Magic Smells**: Ozone, honey, wild roses, earth after rain
+  - **Magic Sounds**: Chimes on wind, whispers, heartbeat rhythm
+- **Danger Level**: Beautiful but dangerous, trickster elements, things aren't always as they seem, nature can be wild and deadly
 
 ## Romantic Tension Guidelines
 
