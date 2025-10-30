@@ -245,12 +245,14 @@ description: Maintains consistency for the leprechaun mythology, Irish estate se
    - Glows with ancient power
    - Can only be opened by Brigid's magic
 
-3. **The Field** (where Fergus/Brigid scene happens)
-   - Rolling meadow of wildflowers
-   - Flowers respond to emotion (bloom, glow)
-   - Private pocket of fae realm
-   - Time moves differently (extended moments)
-   - Soft moss, perfect temperature, starlight even in day
+3. **The Field** (Chapters 20-21 - consummation scene)
+   - Rolling meadow of wildflowers in sacred part of fae realm
+   - Flowers respond to emotion (bloom, glow, create patterns)
+   - Private pocket of fae realm - completely isolated
+   - Time moves differently (extended moments of pleasure)
+   - Soft moss perfect for lovemaking, ideal temperature always
+   - Chapter 20: Animalistic, passionate, primal sex - her magic explodes
+   - Chapter 21: After snuggling, tender sweet lovemaking - bonding magic
 
 4. **The Council Chamber**
    - Circular room with seven seats (one per house)
@@ -397,7 +399,12 @@ description: Maintains consistency for the leprechaun mythology, Irish estate se
     - Readers see hints but Brigid and Fergus don't fully grasp what's happening
     - Full power revelation comes at the climax when she's truly needed
   - **Her power is rare/potent** enough to shift the balance of succession politics
-  - **Additional detail**: She experiences a few masturbation episodes as power subtly awakens (exploring sensations, pleasure and magic intertwining without understanding it)
+  - **Manifestation Through Pleasure**: She experiences masturbation episodes where her unconscious magic manifests reality
+    - Chapter 8: First time - roses appear in her room overnight
+    - Chapter 14: Fantasizing about choosing Fergus - room fills with wildflowers
+    - Chapter 19: Consciously experiments after learning truth
+    - Her orgasms and fantasies literally shape small changes in reality
+    - Sexual magic she doesn't realize she's using until later
 - **Why She Says Yes to Conall**:
   - Career opportunity (opportunity to come to Ireland, special assignment)
   - His persuasion and charm (partly amulet, partly genuine smooth-talking)
@@ -724,7 +731,7 @@ description: Maintains consistency for the leprechaun mythology, Irish estate se
 - Council must acknowledge or fight realm's own magic
 
 ### Series Character - Fergus's Ex (Book 2 Setup)
-- **Name**: [TBD]
+- **Name**: Siobhan (means "God is gracious" - ironic given her vengeful nature)
 - **Description**: Beautiful leprechaun woman who expected to become queen
 - **Background**: Was in relationship with Fergus, believed she would be his consort when he took the throne
 - **Motivation for Freeing Conall**:
